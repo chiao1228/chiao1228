@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @chiao1228
 - 👀 I’m interested in everything(?)
-- 🌱 I’m currently learning Japanese
 - 📫 How to reach me ...Instagram:chiao_1228
 
 <!---
